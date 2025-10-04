@@ -1,4 +1,4 @@
-👋 Hi, I’m Pîrvulescu Alice Maria!
+👋 Hi, I’m Pîrvulescu Alice!
 
 🤖 Student at Faculty of Economic Cybernetics, Statistics and Computer Science, Specialization Computer Science(Business Informatics), Last Year, ASE Bucharest.
 
